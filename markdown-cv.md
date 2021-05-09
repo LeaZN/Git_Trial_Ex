@@ -1,5 +1,44 @@
 #Lea Zouein CV
 
+**THE POSTOFFICE**
+Online Editor / Junior Compositor August 2017 - October 2020
+
+Working with the Postoffice taught me several skills:
+
+Multi-tasking and work on several softwares and tasks
+Great attention to detail
+Handling dailies
+Workflow from start to finish(from asset hand-off to final content delivery)
+Resolving client issues, providing solutions
+Perfect knowledge of digital media : codecs, image types, resolutions, frame rates
+Video metadata and transcription
+Compositing on Flame 
+Tracking
+Rotoscoping
+Package replacement
+Keying
+Beauty retouching
+Paint out
+Conforming insuring highest quality used with metadata
+Excellent understanding of color range and color spaces principles
+Ability to quickly adapt and learn new technologies and softwares
+2D animation
+
+
+Projects:
+Capharnaum - Nadine labaki
+Still Recording - Saeed Al Batal - Ghiath Ayoub
+State Of Agitation Elie khalife
+Ghassan Halwani erased, Ascent of the invisible
+Ghassan Salhab la riviere
+Shades Of Politics - Rania Rafei
+Beirut Hold’em - Michel Kammoun
+Insomnia of a serial dreamer - Mohamed Soueid
+
+
+
+
+
 **MOONSHOT / SOHA SHUKAYR**
 Junior Video Editor / October 2016 - June 2017
 
